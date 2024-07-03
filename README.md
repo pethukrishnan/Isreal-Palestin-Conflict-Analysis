@@ -1,1 +1,0 @@
-# Isreal-Palestin-Conflict-Analysis
